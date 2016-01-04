@@ -7,6 +7,7 @@
 
 ### Revelator
  - Has small tables. 
+ - This one is the best. 
 
 ### Barista Parlor
  - Entirely too concerned with appearance. 
