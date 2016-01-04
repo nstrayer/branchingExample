@@ -7,6 +7,7 @@
 
 ### Revelator
  - Has small tables. 
+ - They offer discounts to Vanderbilt employees. 
 
 ### Barista Parlor
  - Entirely too concerned with appearance. 
