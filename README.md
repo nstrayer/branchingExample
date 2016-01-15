@@ -3,18 +3,17 @@
 ---
 
 ### Hot and Cold
- - Easy, simple, delicious. 
+ - Easy, simple, delicious.
 
 ### Revelator
  - Has small tables. 
- - They offer discounts to Vanderbilt employees. 
+ - They offer discounts to Vanderbilt employees.
 
 ### Barista Parlor
- - Entirely too concerned with appearance. 
+ - Entirely too concerned with appearance.
 
 ### Just Love
- - Unassuming but a little unknowledgable about brewing. 
+ - Unassuming but a little unknowledgable about brewing.
 
 ### Steadfast
- - Super cool and super expensive. 
-
+ - Super cool and super expensive.
