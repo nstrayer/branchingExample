@@ -4,6 +4,7 @@
 
 ### Hot and Cold
  - Easy, simple, delicious. 
+ - The Korean Shaved Ice is amazing. 
 
 ### Revelator
  - Has small tables. 
@@ -11,6 +12,7 @@
 
 ### Barista Parlor
  - Entirely too concerned with appearance. 
+ - Need beard and tight pants. 
 
 ### Just Love
  - Unassuming but a little unknowledgable about brewing. 
