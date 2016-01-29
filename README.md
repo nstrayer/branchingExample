@@ -22,3 +22,5 @@ Dooodad
 ### Steadfast
  - Super cool and super expensive. 
 
+### Fido
+ - Good selection of specialty coffee drinks.
