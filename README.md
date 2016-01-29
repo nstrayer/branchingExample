@@ -1,6 +1,9 @@
 # The Best Coffee Shop In Nashville
 Dooodad
 ---
+### Three Brothers
+ - Close to LUCY'S HOUSE
+ - on the way to school
 
 ### Hot and Cold
  - Easy, simple, delicious. 
