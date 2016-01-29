@@ -9,10 +9,12 @@ Dooodad
 ### Revelator
  - Has small tables. 
  - This one is the best. 
+ - I agree!
 
 ### Barista Parlor
  - Entirely too concerned with appearance. 
  - Need beard and tight pants. 
+ - They roast their own beans
 
 ### Just Love
  - Unassuming but a little unknowledgable about brewing. 
